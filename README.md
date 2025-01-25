@@ -5,3 +5,5 @@ yeah
 
 
 hmm
+
+Manage finances
