@@ -7,3 +7,5 @@ yeah
 hmm
 
 Manage finances
+
+Earn money
