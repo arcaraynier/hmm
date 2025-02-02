@@ -8,4 +8,4 @@ hmm
 
 Manage finances
 
-Earn money
+Earn money and learn new skills 
