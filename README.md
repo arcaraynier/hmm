@@ -9,3 +9,5 @@ hmm
 Manage finances
 
 Earn money and learn new skills 
+
+Build portfolio
