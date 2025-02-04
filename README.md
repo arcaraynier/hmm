@@ -11,3 +11,5 @@ Manage finances
 Earn money and learn new skills 
 
 Build portfolio
+
+And upskill
