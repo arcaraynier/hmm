@@ -13,3 +13,4 @@ Earn money and learn new skills
 Build portfolio
 
 And upskill
+Here I go again, don't know where to start
