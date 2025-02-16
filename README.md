@@ -15,3 +15,5 @@ Build portfolio
 And upskill
 Here I go again, don't know where to start
 q
+
+keep learning
