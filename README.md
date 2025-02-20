@@ -22,3 +22,4 @@ find a job. 2-3 years be a data analyst
 can you become? the pressure today seems overwhelming the stress, anxiety 
 
  sigh
+the scary news is you're own your own kid.
