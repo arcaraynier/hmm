@@ -25,3 +25,5 @@ can you become? the pressure today seems overwhelming the stress, anxiety
 the scary news is you're own your own kid.
 
 one step at a time.
+
+Experience is a learning opportunity to grow.
