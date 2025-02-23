@@ -27,3 +27,5 @@ the scary news is you're own your own kid.
 one step at a time.
 
 Experience is a learning opportunity to grow.
+
+Face your fears
