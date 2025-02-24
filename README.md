@@ -30,3 +30,5 @@ Experience is a learning opportunity to grow.
 
 Face your fears
 or software developer 
+
+time passes so swiftly 
