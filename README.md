@@ -14,7 +14,7 @@ Build portfolio
 
 And upskill
 Here I go again, don't know where to start
-q
+quick 
 
 keep learning
 find a job. 2-3 years be a data analyst
