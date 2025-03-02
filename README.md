@@ -33,4 +33,4 @@ or software developer
 
 time passes so swiftly 
 
-carpe diem
+carpe diem one step at a time
