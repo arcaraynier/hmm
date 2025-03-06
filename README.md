@@ -7,7 +7,7 @@ yeah
 hmm hey
 
 Manage finances
-yeah
+yeah hello
 
 Earn money and learn new skills 
 
