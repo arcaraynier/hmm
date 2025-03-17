@@ -7,7 +7,7 @@ sop
 hmm heyhwyeye
 
 Manage finances
-yeah helloyeaeaweee
+yeah helloyeaeaweeeee
 
 Earn money and learn new skills 
 
