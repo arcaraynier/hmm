@@ -18,7 +18,7 @@ Here I go again, don't know where to start
 quick 
 
 keep learning
-find a job. 2-3 years be a data analyst
+find a job. 2-3 years be a data analyst.
 
 can you become? the pressure today seems overwhelming the stress, anxiety 
 
